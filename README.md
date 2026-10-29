@@ -1,0 +1,2 @@
+# ikimina
+kwizigama nya Rwanda
